@@ -671,3 +671,39 @@ https://t.me/asprokopyev
 
 Птицын Роман Викторович
 https://t.me/romanptitsyn
+
+Разворотнева Светлана Викторовна
+https://t.me/srazvorotneva
+
+Ревенко Евгений Васильевич
+https://t.me/revenkoev
+
+Резник Владислав Матусович
+null
+
+Ресин Владимир Иосифович
+https://t.me/v_resin
+
+Родина Виктория Сергеевна
+https://t.me/rodina_vs
+
+Роднина Ирина Константиновна
+https://t.me/rodninaofficial
+
+Романенко Роман Юрьевич
+null
+
+Романов Михаил Валентинович
+https://t.me/MVRomanov
+
+Руденский Игорь Николаевич
+https://t.me/Rudenskiy
+
+Румянцев Александр Григорьевич
+https://t.me/doc_rumyantsev
+
+Румянцев Никита Геннадьевич
+https://t.me/RuNikGGR
+
+Рябцева Жанна Анатольевна
+https://t.me/ryabseva_zhanna
