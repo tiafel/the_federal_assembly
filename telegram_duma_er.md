@@ -43,7 +43,7 @@ null
 https://t.me/alenaarshinova
 
 Аюпов Ринат Зайдулаевич
-https://t.me/s/arz_gd
+https://t.me/arz_gd
 
 Бабашов Леонид Иванович
 https://t.me/babachov
@@ -79,13 +79,13 @@ null
 null
 
 Бессараб Светлана Викторовна
-https://t.me/s/sbessarab
+https://t.me/sbessarab
 
 Бессарабов Даниил Владимирович
 https://t.me/bessarabovdv
 
 Бидонько Сергей Юрьевич
-https://t.me/s/bidonko_sergey
+https://t.me/bidonko_sergey
 
 Бичаев Артем Александрович
 https://t.me/artembichaev
@@ -115,7 +115,7 @@ https://t.me/n_buduev
 null
 
 Буранова Лариса Николаевна
-https://t.me/s/larisaburanova
+https://t.me/larisaburanova
 
 Бурлаков Сергей Владимирович
 https://t.me/ser_burlakov
@@ -283,7 +283,7 @@ https://t.me/priemnaya_ezubov
 null
 
 Жуков Александр Дмитриевич
-https://t.me/s/dobrotazhukov
+https://t.me/dobrotazhukov
 
 Журова Светлана Сергеевна
 https://t.me/szhurova
@@ -565,10 +565,10 @@ https://t.me/neverovsi
 https://t.me/ainemkin
 
 Николаев Николай Петрович
-https://t.me/s/nikpnik
+https://t.me/nikpnik
 
 Николаева Виктория Викторовна
-https://t.me/s/viktoria_viktorovna_nikolaeva
+https://t.me/viktoria_viktorovna_nikolaeva
 
 Никонов Вячеслав Алексеевич
 https://t.me/VA_Nikonov
@@ -796,19 +796,52 @@ https://t.me/stenyakina_ep
 https://t.me/strelyhindelovoipodhod
 
 Таймазов Артур Борисович
+https://t.me/taymazov_artur
+
 Тарасенко Михаил Васильевич
+https://t.me/MIHAILTARASENKO
+
 Татриев Муслим Барисович
+https://t.me/deputatgosdumarf
+
 Тен Сергей Юрьевич
+https://t.me/ten_s_u
+
 Терентьев Михаил Борисович
+https://t.me/tmbsd
+
 Терешкова Валентина Владимировна
+null
+
 Терюшков Роман Игоревич
+https://t.me/teryushkov
+
 Тетердинко Александр Павлович
+https://t.me/teterdinko
+
 Тимофеева Ольга Викторовна
+null
+
 Ткачев Алексей Николаевич
+https://t.me/tkachevNL
+
 Толмачёв Александр Романович
+https://t.me/ARTolmachev
+
 Толстой Петр Олегович
+https://t.me/petr_tolstoy
+
 Топилин Максим Анатольевич
+https://t.me/topilinma
+
 Третьяк Владислав Александрович
+null
+
 Трифонов Андрей Федорович
+null
+
 Туров Артём Викторович
+https://t.me/avturow
+
 Тутова Лариса Николаевна
+https://t.me/Larisa_Tutova
