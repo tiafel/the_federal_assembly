@@ -235,22 +235,52 @@ https://t.me/agurulev
 https://t.me/gutenev_vv
 
 Дамдинцурунов Вячеслав Анатольевич
+https://t.me/damdintsurunov
+
 Данчикова Галина Иннокентьевна
+https://t.me/galina_danchikova
+
 Делимханов Адам Султанович
+https://t.me/adelimkhanov_95
+
 Демченко Иван Иванович
+https://t.me/demchenkoteam
+
 Дерябкин Виктор Ефимович
+https://t.me/DeryabkinVE
+
 Дзюба Виктор Викторович
+https://t.me/dzubavictor
+
 Димов Олег Дмитриевич
+null
+
 Догаев Ахмед Шамханович
+null
+
 Долуда Николай Александрович
+https://t.me/Nikolai_Doluda
+
 Дорошенко Андрей Николаевич
+https://t.me/Doroshenko_GD
+
 Дрожжина Юлия Николаевна
+https://t.me/drozhzhina_yu
+
 Дроздов Александр Сергеевич
+null
+
 Дьяконова Татьяна Ивановна
+https://t.me/dyakonova_ti
 
 Евтюхова Елена Александровна
+https://t.me/ea_evtuhova
+
 Езубов Алексей Петрович
+https://t.me/priemnaya_ezubov
+
 Ефимов Виталий Борисович
+null
 
 Жуков Александр Дмитриевич
 Журова Светлана Сергеевна
