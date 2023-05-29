@@ -129,6 +129,51 @@ https://t.me/mariabutina
 Буцкая Татьяна Викторовна
 null
 
+Васильев Владимир Абдуалиевич
+null
+
+Василькова Мария Викторовна
+https://t.me/Maria_VVasilkova
+
+Веллер Алексей Борисович
+https://t.me/abveller
+
+Веремеенко Сергей Алексеевич
+https://t.me/veremeenkoduma
+
+Власова Вероника Валериевна
+https://t.me/veremeenkoduma
+
+Водолацкий Виктор Петрович
+https://t.me/rostovdonbass
+
+Водянов Роман Михайлович
+null
+
+Володин Вячеслав Викторович
+https://t.me/vv_volodin
+
+Волоцков Алексей Анатольевич
+https://t.me/volotskov
+
+Вольфсон Илья Светославович
+https://t.me/ivolfson
+
+Воробьев Андрей Викторович
+null
+
+Вороновский Анатолий Владимирович
+https://t.me/VoronovskiyAV
+
+Вторыгина Елена Андреевна
+https://t.me/ea_vtorygina
+
+Выборный Анатолий Борисович
+null
+
+Вяткин Дмитрий Федорович
+https://t.me/VyatkinDF
+
 Назарова Наталья Васильевна
 https://t.me/nazarovanatali52
 
