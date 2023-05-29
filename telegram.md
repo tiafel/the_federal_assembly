@@ -343,78 +343,217 @@ https://vk.com/team_isaev
 https://t.me/islamovdv
 
 Кавинов Артем Александрович
+https://t.me/kavinov_aa
+
 Каденков Дмитрий Михайлович
+https://t.me/dm_kadenkov
+
 Казаков Виктор Алексеевич
+https://t.me/kazakov160
+
 Казакова Ольга Михайловна
+https://t.me/kazakovaolga_rf
+
 Калимуллин Рустам Галиуллович
+null
+
 Канаев Алексей Валерианович
+null
+
 Кара-оол Шолбан Валерьевич
+https://t.me/karaoolduma
+
 Карлов Георгий Александрович
+https://t.me/karlov_mnenie
+
 Кармазина Раиса Васильевна
+null
+
 Карпов Анатолий Евгеньевич
+https://t.me/Karpov_Anatoly_official
+
 Картаполов Андрей Валериевич
+https://t.me/pravda_oborona
+
 Кастюкевич Игорь Юрьевич
+https://t.me/kastyukevich_live
+
 Качкаев Павел Рюрикович
+null
+
 Квитка Иван Иванович
+https://t.me/ivankvitka72
+
 Кидяев Виктор Борисович
+null
+
 Кизеев Михаил Владимирович
+https://t.me/kizeev_mv
+
 Кирьянов Артем Юрьевич
+https://t.me/artem_kirianov
+
 Киселёв Михаил Сергеевич
+https://t.me/kiselev_ms
+
 Кисляков Михаил Леонидович
+https://t.me/kml1975
+
 Кобылкин Дмитрий Николаевич
+https://t.me/dnkobylkin
+
 Ковпак Лев Игоревич
+https://t.me/levkovpak
+
 Коган Александр Борисович
+https://t.me/Kogan_LIVE
+
 Когогина Альфия Гумаровна
+https://t.me/agkogogina
+
 Козловский Александр Николаевич
+https://t.me/kozlovskii_a
+
 Колесник Андрей Иванович
+https://t.me/akolesnik39
+
 Колесников Олег Алексеевич
+null
+
 Колунов Сергей Владимирович
+https://t.me/Kolunov_s
+
 Кононов Владимир Михайлович
+https://t.me/vmkononov
+
 Коробова Ольга Владимировна
+https://t.me/Olga_Korobova_GD
+
 Костенко Наталья Васильевна
+null
+
 Коткин Сергей Николаевич
+null
+
 Кравченко Денис Борисович
+https://t.me/dbkravchenko
+
 Красноштанов Антон Алексеевич
+https://t.me/anton_krasnoshtanov
+
 Красов Андрей Леонидович
+https://t.me/andreykrasov
+
 Крашенинников Павел Владимирович
+null
+
 Кривоносов Сергей Владимирович
+https://t.me/krivonosov_sv
+
 Кузнецов Эдуард Анатольевич
+https://t.me/eduard_kuznetsov555
+
 Кузнецова Анна Юрьевна
+https://t.me/Anna_Jurjevna
+
 Кузьмин Михаил Владимирович
+https://t.me/kuzmin26
+
 Курбанов Ризван Даниялович
+https://t.me/kurbanov_rizvan
+
 Кусайко Татьяна Алексеевна
+https://t.me/takusayko
+
 Кушнарев Виталий Васильевич
+https://t.me/kushnarevvv
 
 Лавриненко Алексей Федорович
+https://t.me/aflavrinenko
+
 Ламейкин Дмитрий Викторович
+https://t.me/lameykin
+
 Ларионова Татьяна Петровна
+https://t.me/TLarionova
+
 Лебедев Евгений Викторович
+https://t.me/lebedev57
+
 Лесун Анатолий Фёдорович
+https://t.me/aflesun129
+
 Лечхаджиев Руслан Абдулвахиевич
+null
+
 Лисовский Сергей Федорович
+https://t.me/sflisovsky
+
 Лихачев Виталий Викторович
+null
+
 Лобач Татьяна Георгиевна
+https://t.me/lobach_sevastopol
+
 Логинов Вячеслав Юрьевич
+https://t.me/loginovvy
+
 Лоор Иван Иванович
+https://t.me/loordeputat
+
 Лоцманов Дмитрий Николаевич
+https://t.me/dlocmanov
+
 Любарский Роман Валерьевич
+null
 
 Мажуга Александр Георгиевич
+https://t.me/MAGnit80
+
 Майданов Денис Васильевич
+https://t.me/DENISMAYDANOV
+
 Макаров Андрей Михайлович
+null
+
 Макаров Вячеслав Серафимович
+https://t.me/vyacheslav_makarov
+
 Макиев Зураб Гайозович
+https://t.me/ZurabMakiev
+
 Максимов Александр Александрович
+https://t.me/maximovnvkz
+
 Марданшин Рафаэль Мирхатимович
+https://t.me/rmardanshin
+
 Марков Андрей Павлович
+https://t.me/ap_markov
+
 Матвейчев Олег Анатольевич
+https://t.me/matveychev
+
 Метелев Артем Павлович
+https://t.me/artemmetelev
+
 Метшин Айдар Раисович
+https://t.me/a_metshin
+
 Милонов Виталий Валентинович
+https://t.me/govoritmilonov
+
 Морозов Олег Викторович
+https://t.me/olegmorozov0511
+
 Морозов Сергей Иванович
+https://t.me/sergeymorozov73
+
 Москвичев Евгений Сергеевич
+https://t.me/EvgeniyMoskvichov
+
 Муцоев Зелимхан Аликоевич
+https://t.me/mutsoev
 
 Назарова Наталья Васильевна
 https://t.me/nazarovanatali52
