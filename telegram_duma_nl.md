@@ -34,7 +34,7 @@ https://t.me/skroznikova_anna
 https://t.me/Tarbaev_Sangadji
 
 Ткачёв Антон Олегович
-https://t.me/tkachevNL/583
+https://t.me/tkachevNL
 
 Хамитов Амир Махсудович
 https://t.me/amirkhamitov
