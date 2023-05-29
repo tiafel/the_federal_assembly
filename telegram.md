@@ -584,3 +584,90 @@ https://t.me/nurbagandov_nm
 
 Нуриев Марат Абдулхаевич
 https://t.me/NurievMA
+
+Оглоблина Юлия Васильевна
+https://t.me/Ogloblina_selo
+
+Огуль Леонид Анатольевич
+https://t.me/Leonid_ogul
+
+Оргеева Марина Эдуардовна
+https://t.me/orgeeva
+
+Орлова Наталья Алексеевна
+https://t.me/orlova_natalia_er
+
+Павлов Владимир Викторович
+https://t.me/vladimir_pavlov174
+
+Панин Геннадий Олегович
+https://t.me/GennadyPanin
+
+Панков Николай Васильевич
+https://t.me/paraslov1
+
+Панькина Ирина Александровна
+https://t.me/pankina_ia
+
+Парфенов Андрей Борисович
+null
+
+Пахомов Сергей Александрович
+https://t.me/sapakhomovGD
+
+Первышов Евгений Алексеевич
+https://t.me/PervyshovEA
+
+Петров Александр Петрович
+https://t.me/APPetrovDumaRF
+
+Петров Вячеслав Анатольевич
+https://t.me/petrov_po_delu
+
+Петров Сергей Валериевич
+null
+
+Петров Юрий Александрович
+null
+
+Пивненко Валентина Николаевна
+null
+
+Пилипенко Ольга Васильевна
+https://t.me/pilipenko_ov
+
+Пинский Виктор Витальевич
+null
+
+Пирог Дмитрий Юрьевич
+https://t.me/dmitry_pirog
+
+Пискарев Василий Иванович
+https://t.me/vasilii_piskarev
+
+Плотников Владимир Николаевич
+https://t.me/vnplotnikov
+
+Погорелый Дмитрий Викторович
+https://t.me/pogorelyi_dv
+
+Полуянова Наталия Владимировна
+https://t.me/poluyanovan
+
+Поляков Александр Алексеевич
+https://t.me/AlexPolakov68
+
+Полякова Алла Викторовна
+https://t.me/a_v_polyakova
+
+Пономарев Аркадий Николаевич
+null
+
+Попов Евгений Георгиевич
+https://t.me/vladivostok1978
+
+Прокопьев Александр Сергеевич
+https://t.me/asprokopyev
+
+Птицын Роман Викторович
+https://t.me/romanptitsyn
