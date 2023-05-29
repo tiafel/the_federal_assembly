@@ -175,25 +175,64 @@ null
 https://t.me/VyatkinDF
 
 Гаджиев Абдулхаким Кутбудинович
+https://t.me/abdulhakim_gadzhiev
+
 Гаджиев Мурад Станиславович
+https://t.me/msgadzhiev
+
 Гаджиев Руслан Гаджиевич
+https://t.me/gadjievruslan_rt
+
 Гарин Олег Владимирович
+https://t.me/oleg_garin
+
 Гасанов Джамаладин Набиевич
+https://t.me/dzhamaladin_gasanov
+
 Геккиев Заур Далхатович
+null
+
 Германова Ольга Михайловна
+https://t.me/GermanovaOM
+
 Гетта Антон Александрович
+https://t.me/gettaanton
+
 Гильмутдинов Динар Загитович
+https://t.me/dgilmutdinov
+
 Гильмутдинов Ильдар Ирекович
+https://t.me/Gilmutdinov_II
+
 Гимбатов Андрей Петрович
+https://t.me/gimbatov34
+
 Гладких Борис Михайлович
+https://t.me/GladkihBoris
+
 Говырин Алексей Борисович
+https://t.me/govyrin
+
 Голиков Олег Александрович
+https://t.me/oleg21101968
+
 Гончаров Николай Александрович
+https://t.me/DeputatGoncharov
+
 Гордеев Алексей Васильевич
+https://t.me/av_gordeev
+
 Горелкин Антон Вадимович
+https://t.me/webstrangler
+
 Горохов Андрей Юрьевич
+https://t.me/gorokhovonline
+
 Гурулёв Андрей Викторович
+https://t.me/agurulev
+
 Гутенев Владимир Владимирович
+https://t.me/gutenev_vv
 
 Дамдинцурунов Вячеслав Анатольевич
 Данчикова Галина Иннокентьевна
