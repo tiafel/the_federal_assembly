@@ -13,7 +13,7 @@ https://t.me/alimova64
 https://t.me/Ammosov_Gosduma
 
 Арефьев Николай Васильевич
-https://t.me/spetstv/1601
+null
 
 Афонин Юрий Вячеславович
 https://t.me/afonin_yuriy
