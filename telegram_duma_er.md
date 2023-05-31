@@ -550,7 +550,7 @@ https://t.me/olegmorozov0511
 https://t.me/sergeymorozov73
 
 Москвичев Евгений Сергеевич
-https://t.me/EvgeniyMoskvichov
+null
 
 Муцоев Зелимхан Аликоевич
 https://t.me/mutsoev
