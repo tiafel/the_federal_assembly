@@ -64,7 +64,7 @@ https://t.me/mironovonline
 https://t.me/olegnilovofficial
 
 Новичков Николай Владимирович
-https://t.me/nikolaynovichkoff/2021
+https://t.me/nikolaynovichkoff
 
 Ремезков Александр Александрович
 https://t.me/remezkov
