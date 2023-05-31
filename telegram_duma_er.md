@@ -31,7 +31,7 @@ null
 https://t.me/igor_antropenko
 
 Ануфриева Ольга Николаевна
-https://t.me/anufrieva_o
+null
 
 Артамонова Валентина Николаевна
 https://t.me/vnartamonova
@@ -337,7 +337,7 @@ null
 https://t.me/iltiakov_live
 
 Исаев Андрей Константинович
-https://vk.com/team_isaev
+null
 
 Исламов Дмитрий Викторович
 https://t.me/islamovdv
