@@ -129,6 +129,9 @@ https://t.me/mariabutina
 Буцкая Татьяна Викторовна
 null
 
+Валуев Николай Сергеевич
+https://t.me/nickvaluev
+
 Васильев Владимир Абдуалиевич
 null
 
